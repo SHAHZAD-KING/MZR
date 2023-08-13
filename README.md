@@ -29,6 +29,6 @@ CLONE FULL OK IDZ_
 
 
 
- ___This Tools is Paid Message Whatsapp___</br>
+
  [![Whatsapp](https://img.shields.io/badge/Whatsapp-SHAHZAD-deepgreen?style=flat-square&logo=whatsapp)](https://wa.me/+93745582655)
  
