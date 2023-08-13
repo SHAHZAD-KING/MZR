@@ -2,7 +2,7 @@
 
 
 FREE TOOLS
-<b></b> </br> <br>[![Github](https://img.shields.io/badge/Github-SHAHZAD-KING-dimgray?style=flat-square&logo=github)](https://github.com/RayeesAmirNafas01)<br> [![Facebook](https://img.shields.io/badge/Facebook-Amir-AKING-blue?style=flat-square&logo=facebook)](https://www.facebook.com/RaYees.AmIr42011)<br> [![Whatsapp](https://img.shields.io/badge/Whatsapp-SHAHZAD-deepgreen?style=flat-square&logo=whatsapp)](https://wa.me/+93745582655)
+<b></b> </br> <br>[![Github](https://img.shields.io/badge/Github-SHAHZAD-KING-dimgray?style=flat-square&logo=github)](https://github.com/RayeesAmirNafas01)<br> [![Facebook](https://img.shields.io/badge/Facebook-Amir-AKING-blue?style=flat-square&logo=facebook)](https://www.facebook.com/ShahzadRahimy)<br> [![Whatsapp](https://img.shields.io/badge/Whatsapp-SHAHZAD-deepgreen?style=flat-square&logo=whatsapp)](https://wa.me/+93745582655)
 
 
 
